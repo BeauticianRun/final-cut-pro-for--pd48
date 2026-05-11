@@ -1,4 +1,4 @@
-# 
+# ultimate Final Cut Pro for macOS Addon | reverb + multi-cam-editing is the best Final Cut Pro for macOS addon, featuring reverb and multi-cam-editing. Safe, efficient, and
 
 
 
